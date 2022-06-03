@@ -1,0 +1,1 @@
+# kelulusan-smkn1-larantuka
